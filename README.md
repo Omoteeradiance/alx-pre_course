@@ -1,1 +1,1 @@
-I am born to win
+I am born to win and shine
